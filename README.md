@@ -1,4 +1,4 @@
-# D E L T A - > https://wp.me/PgIKuC-2W
+https://mega.nz/file/qwZ2GKZY#A0tCGVnCnvKItmBTz1nA8tmHkJ4fxZISdUljNGyE8jk# D E L T A - > https://wp.me/PgIKuC-2W
 
 
 # neurosoma
